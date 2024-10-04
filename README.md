@@ -1,0 +1,2 @@
+# new-notes
+OBSIDIAN SECOND BRAIN SYNC &amp; BACKUP
